@@ -1,1 +1,1 @@
-Ejerrcicio
+Actividad
